@@ -1,3 +1,3 @@
 Video Demonstartion of project
 
-https://drive.google.com/drive/folders/1Zi1jG7wiUGtu9dhpMFvmVER4FZc-wh79?usp=sharing
+https://drive.google.com/file/d/1gGXwIwnOwL2H51Gx1Gq-juJHFi38PyjU/view?usp=sharing
